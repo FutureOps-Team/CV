@@ -1,2 +1,2 @@
 # CV
-Cybersecurity student – technical resume
+IT & Cybersecurity student | Technical CV
